@@ -56,3 +56,23 @@ into one another.
 6. [latex-instant](https://mathpix.com/)
 
  ........
+ 
+  # New meaning
+
+ Now, this logo is my first choice.
+
+ The triangle is a diado. The blank triangle in the center means Eudaimonia, the ultimate goal of life.
+
+ 1. take responsibility
+ 2. live with Arete, i.e. express my highest self in every moment
+ 3. focus on what I can control
+
+ One vortex of this triangle is pointing inline with a wire, which represents the truth.
+
+ There black dots mean:
+
+ 1. truth [science]
+ 2. beauty [art]
+ 3. goodness [religion]
+
+ There is also a white triangle if you observe very carefully. That's Taiji all about.
